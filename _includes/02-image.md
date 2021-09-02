@@ -1,1 +1,1 @@
-![headshot of a young black woman with twists in her hair and wearing glasses]
+![headshot of a young black woman with twists in her hair and wearing glasses](https://www.alaskapublic.org/wp-content/uploads/2019/12/AinaMayowa.jpeg)
